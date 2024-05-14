@@ -1,1 +1,1 @@
-# surat-keterangan-desa
+# surat-menyurat-kampus
